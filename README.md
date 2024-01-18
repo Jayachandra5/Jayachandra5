@@ -6,6 +6,7 @@
 - 👨‍💻 All of my projects are available at [https://github.com/Jayachandra5?tab=repositories](https://github.com/Jayachandra5?tab=repositories)
 
 - 📫 How to reach me **kj455@snu.edi.in**
+- Linked-In :- https://www.linkedin.com/in/jayachandra-kothamasu-083a721a0/
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
