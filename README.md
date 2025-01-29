@@ -7,6 +7,8 @@
 
 - 📫 How to reach me **kj455@snu.edi.in**
 - Linked-In :- https://www.linkedin.com/in/jayachandra-kothamasu-083a721a0/
+- Portfolio :- kothamasu-jayachandra.netlify.app
+- Product Website :- https://ims.unaux.com/
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
